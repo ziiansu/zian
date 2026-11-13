@@ -1,4 +1,4 @@
-# zian's introduction since no sp 
+# zian's introduction since no one gave a fuck
 <div align=center>
   Hi Im ziiansu , zi or zian ok. 13+ he/him and funny asf, I only play pony town because of my cute friend ok. free int and general dni list ok.
   <div></div>
